@@ -1,0 +1,2 @@
+# Mamallamas.github.io
+The following website is going to be the equivalent of Zac Efron standing in front of you,naked,with a bucket of KFC and a purple lightsaber. For you,and for the sake of humanity,please share this video with your friends,family,pets,trees,salamanders and of course,the mama llamas.If you,or someone you know,is suffering from the lack of a new Ed Sheeran album,dying due to Cosmic Brownie addiction,or need Jesus...This website is for you.
